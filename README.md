@@ -1,5 +1,7 @@
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=PT+Serif&duration=2000&pause=1000&color=F777C8&width=435&lines=I+squinted+at+the+wailing+dials;Surely%2C+surely%2C+through+the+mirror%2C;8+o'clock+has+come+and+gone.)](https://git.io/typing-svg)
+
 I'm Loo/Looey Hi.
+
 Read strawwwwwwwww🤘
 
 Read pintrest bio if interested in art
