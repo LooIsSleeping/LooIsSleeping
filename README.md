@@ -1,6 +1,4 @@
-Hi, I'm Looey/Loo
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=PT+Serif&duration=2000&pause=1000&color=F777C8&width=435&lines=I+squinted+at+the+wailing+dials;Surely%2C+surely%2C+through+the+mirror%2C;8+o'clock+has+come+and+gone.)](https://git.io/typing-svg)
 
-You can fnd me on Pinterest. Link is already there
-Pronouns: She/They/He. i go by any, but i prefer they or she :)
-I post on Pinterest sometimes! Message me there if you want me to draw for you! Free of charge. Just might take awhile
-- ![1772646288677382836961017743157](https://github.com/user-attachments/assets/12ee79a6-44ae-4305-a147-03641f717428)
+
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=312wnys26rlq5xm6c7queycviqqm&cover_image=true&theme=default&show_offline=false&background_color=172e19&interchange=false&profanity=false&bar_color=ffff8a&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
